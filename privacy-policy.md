@@ -22,6 +22,6 @@ If you have questions about this Privacy Policy, you can contact us at:
 
 Email: george.walkers4444@gmail.com
 Address:
-Smart Vikyrovice
-Vikýřovice 312
-78813 Czechia
+Smart Vikyrovice,
+Vikýřovice 312,
+78813, Czechia
